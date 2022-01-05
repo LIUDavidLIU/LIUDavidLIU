@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @LIUDavidLIU
-- 👀 I’m interested in The Book
+- 👋 Hi, I’m @DavidLIU
+- 👀 I’m interested in The BOOK.
 - 🌱 I’m currently learning ... Pr
 - 💞️ I’m looking to collaborate on CH Planting
 - 📫 How to reach me ... discord David Liu#4583
